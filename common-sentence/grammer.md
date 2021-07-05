@@ -53,5 +53,12 @@ Present Perfect Tense
 Present Perfect Progressive Tense
 这兔子已经吃完了一些胡萝卜还要继续吃
 
+the rabbit ate 3 carrot still eating fourth carrot
 +++++++++++++++++++++++++++++++++++++++++++++
 
+
+
+去年我家兔子正常和我玩然后邻居的狗袭击了他 然后她死了
+
+
+i playing with my rabbit then the dog bite my rabbit it's died right now 
